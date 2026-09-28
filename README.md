@@ -221,4 +221,4 @@ Maniac Mansion Deluxe is the complete free version of the game, providing all fe
 Ready to embark on your adventure? Download Maniac Mansion Deluxe now and relive the excitement of this classic game!
 
 ---
-**Last updated:** 2026-09-28 06:03:36 UTC
+**Last updated:** 2026-09-28 14:40:01 UTC
